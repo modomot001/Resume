@@ -2,17 +2,16 @@
 
 
 modomot001@gmail.com
-
 808-258-2334
 
 
 
-OBJECTIVE:	I desire to attend Ada Academy to become a Software  and Full Stack Developer
+OBJECTIVE:	I desire to attend Ada Academy to become a Software and Full Stack Developer
 
 EXPERIENCE:	 
 
 
-         Medical Leave                          12/15-Present
+     Medical Leave                          12/15-Present
 
 	 Roberts Hawaii	                        Honolulu, HI
 	 Motor Coach Driver	                06/12 to 12/15
