@@ -1,14 +1,18 @@
 #Terri Gayle Leialoha Modomo
 
-91-1022 Kaiau Avenue #G • Kapolei, Hawaii 96707 • 808-258-2334
+
 modomot001@gmail.com
+
+808-258-2334
+
+
 
 OBJECTIVE:	I desire to attend Ada Academy to become a Software  and Full Stack Developer
 
 EXPERIENCE:	 
 
 
-     Medical Leave-Disability               12/15
+         Medical Leave                          12/15-Present
 
 	 Roberts Hawaii	                        Honolulu, HI
 	 Motor Coach Driver	                06/12 to 12/15
